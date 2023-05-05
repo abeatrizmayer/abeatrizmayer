@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @abeatrizmayer
+- 👀 I’m interested in finding the best candidates to join Vendoo Inc.
+- 🌱 I’m currently learning that I have A LOT TO LEARN.
+- 💞️ I’m looking to learn a little bit about what you guys do here!
+- 📫 How to reach me: ana@vendoo.co or https://www.linkedin.com/in/anabeatrizmayer/
